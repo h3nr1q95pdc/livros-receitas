@@ -1,1 +1,0 @@
-#estrogonofe de frango
